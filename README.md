@@ -1,0 +1,2 @@
+# ernest
+AI Also Rises
